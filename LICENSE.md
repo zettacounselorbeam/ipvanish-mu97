@@ -1,4 +1,4 @@
-
+premium IPVanish Client | smart-DNS + camouflage-mode is the best IPVanish client, featuring smart-DNS and camouflage-mode. Secure, fast, and optimized for privacy.
 
 
 
